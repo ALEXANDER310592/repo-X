@@ -1,1 +1,1 @@
-Alexander G
+estatus de alexander 
